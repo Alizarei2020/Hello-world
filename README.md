@@ -1,2 +1,2 @@
 # Hello-world
-Your mind is the cage and the key..
+Your mind is the Cage and the Key..
